@@ -16,4 +16,4 @@ Celebrar los logros pequeños
 
 Modelo para la resiliencia personal - IMPAQ Coaching Group - Mark Samuel
 
-<img src="https://cdn-images-1.medium.com/max/600/1*VaPJeQUEjZEBfq-q_Eif3A.jpeg"/>
+<img src="http://www.ideasronald.com/images/impaq%20personal%20accountability%20model.jpg"/>
