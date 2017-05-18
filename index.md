@@ -7,8 +7,11 @@ Primer evento registrado en página. IDX, Cultura y transformación
 Harmonia - Dirección y propósito
 
 deseo = yo quiero
+
 Aprender en el tiempo
+
 Celebrar los logros pequeños
-¿Para qué quisimoe emprender?
+
+¿Para qué quisimos emprender?
 
 Modelo para la resiliencia personal - IMPAQ Coaching Group - Mark Samuel
